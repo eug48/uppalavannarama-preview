@@ -32,6 +32,7 @@ Please note that Ayya Suvira has not accepted dana bookings, i.e. with the sole 
 Mon-Sat 5:30pm-6:30pm, phone 0474961152 (exact days may vary so feel free to leave a text message).
 
 Monastic contact: uppalavannarama.sangha[at]gmail.com
+
 The kappiya association: uppalavannarama.kappiya[at]gmail.com
 
 ## Message from the Treasurer
@@ -41,7 +42,9 @@ If you would like to assist with financial support for the material wellbeing, d
 PayID/Osko: uppalavannarama.kappiya@gmail.com
 
 Account name: Uppalavannarama Kappiya
+
 BSB: 633 000
+
 Account number: 205 054 786
 
 On behalf of the lay stewards: a big “anumodana” - we rejoice in the beauty of your kind support to the bhikkhuni sangha!
