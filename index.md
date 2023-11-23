@@ -14,13 +14,6 @@ The primary source of teaching and practice at Uppalavannarama is the text of th
 
 Ayya Suvira encourages all people to sincerely practice meritorious deeds and the ten wholesome dhammas; and to learn, practice and transmit Buddhism widely for the purpose of liberation.
 
-## Environment
-
-Our practice as bhikkhunis includes the intention of harmlessness. In recent years, this has meant giving a higher priority to the environment in our daily lives and actively resisting harmful trends in the broader society.
-
-Ayya invites the wider community to join us in reducing plastics at this time of environmental need.
-
-
 ## Visiting & (No) Meal Policy
 
 There is no visitation without a prior appointment. Please contact us to make an appointment.
@@ -28,8 +21,6 @@ There is no visitation without a prior appointment. Please contact us to make an
 Please note that Ayya Suvira has not accepted dana bookings, i.e. with the sole purpose of meal donation, or meal invitations since 2021. There is no fixed alms-route time or location (alms-route may vary without notice).
 
 ## Contact
-
-Mon-Sat 5:30pm-6:30pm, phone 0474961152 (exact days may vary so feel free to leave a text message).
 
 Monastic contact: uppalavannarama.sangha[at]gmail.com
 
