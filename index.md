@@ -5,7 +5,7 @@ Uppalavannarama Bhikkhunupassaya Kappiya Association was founded in 2023 out of 
 
 ## About Ayya Suvira
 
-Ayya Suvira received novice ordination in 2016, and full ordination as a bhikkhuni in 2019 with Ayya Santini Mahatheri of Indonesia as preceptor. Ayya Suvira is secretary of the Australian Sangha Association, a national peak body representing Buddhist monks and nuns in Australia. She also represents the Australian Sangha Association on the advisory groups of Cemeteries and Crematoria NSW, Catholic Cemeteries and Crematoria, and OneCrown.
+Ayya Suvira received novice ordination in 2016, and full ordination as a bhikkhuni in 2019 with Ayya Santini Mahatheri of Indonesia as preceptor. Ayya Suvira is secretary of the Australian Sangha Association, a national peak body representing Buddhist monks and nuns in Australia. She also represents the Australian Sangha Association on the advisory groups of Cemeteries and Crematoria NSW, Catholic Cemeteries and Crematoria, and Metropolitan Memorial Parks.
 
 
 ## Practice
@@ -18,7 +18,7 @@ Ayya Suvira encourages all people to sincerely practice meritorious deeds and th
 
 There is no visitation without a prior appointment. Please contact us to make an appointment.
 
-Please note that Ayya Suvira has not accepted dana bookings, i.e. with the sole purpose of meal donation, or meal invitations since 2021. There is no fixed alms-route time or location (alms-route may vary without notice).
+Please note that Ayya Suvira and visiting sangha have not accepted dana bookings, i.e. with the sole purpose of meal donation, or meal invitations since 2021. There is no fixed alms-route time or location (alms-route may vary without notice).
 
 ## Contact
 
